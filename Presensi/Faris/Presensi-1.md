@@ -1,0 +1,1 @@
+Bisa diisi dari hasil explor temen2 atau yang didapat hari ini
