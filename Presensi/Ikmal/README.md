@@ -1,0 +1,1 @@
+Pertemuan pertama kelas mobile. Perkenalan dengan teman-teman dan pengenalan materi
